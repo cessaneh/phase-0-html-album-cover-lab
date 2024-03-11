@@ -1,4 +1,3 @@
-<!-- FRONT -->
 
 PHARRELL WILLIAMS
 
